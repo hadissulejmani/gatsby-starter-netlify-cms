@@ -13,4 +13,4 @@ tags:
 ---
 ![flavor wheel](/img/flavor_wheel.jpg)
 
-The SCAA updated the wheel to reflect the finer nuances needed to describe flavors more precisely. The new desen dedicated to creating a vibrant specialty coffee community by recognizelltale f Hadis Bossi origin.
+The SCAA updated the wheel to reflect the finer nuances needed to describe flavors more precisely. The new desen dedicated to creating a vibrant specialty coffee community by recognizing origin.
